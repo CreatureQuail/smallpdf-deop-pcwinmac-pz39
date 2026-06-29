@@ -1,4 +1,4 @@
-# 
+# Nativo Smallpdf Desktop complementos para Mac OS | Premium Smallpdf Desktop complementos para PC Windows. Con herramientas de anotación y informes financieros — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
